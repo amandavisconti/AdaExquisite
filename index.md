@@ -16,3 +16,5 @@ This stocking, he thinks: I'll be d\---ed if it's the thing that gives me away.
 Babbage still lives. The cylinder spins\-- \-- \--its wheel back to Babylon, forward
 
 The machine: is ready.
+
+Dickens' book falls open.  The page reads "Secret Intelligence".
