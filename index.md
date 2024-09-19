@@ -18,3 +18,5 @@ Babbage still lives. The cylinder spins\-- \-- \--its wheel back to Babylon, for
 The machine: is ready.
 
 Dickens' book falls open.  The page reads "Secret Intelligence".
+
+"This page is arrayed with typographic elegance,"
