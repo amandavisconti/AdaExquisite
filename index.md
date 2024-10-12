@@ -2,7 +2,9 @@
 title: Ada Exquisite
 ---
 The strings swell, the camera pans away\--Ada Lovelace is pronounced dead.  
-As the echo of the tinny voice fades from the room, Ada lurches toward the phonograph to rip its wires from the still-humming Jacquard loom.  
+As the echo of the tinny voice fades from the room, Ada lurches  
+toward the phonograph  
+to rip its wires from the still-humming Jacquard loom.  
 The sudden gloom of silence, the quick lack of hiss & hum,   
 erode to swing the doors  
 widening to the undertones of the room:  
