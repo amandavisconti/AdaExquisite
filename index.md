@@ -26,4 +26,9 @@ That tongue and mouth and teeth are dead. The machine.
 cares not a bit. It stretches, yawns. It stands.  
 sturdily, awaiting to be born.  
 
-The strings of the loom swell, warp and weft. 
+The strings of the loom swell, warp and weft  
+weft and warp. One thread. 
+snaps; the rest stretch on and. 
+on.  
+
+Ada dies; no one is more surprised
